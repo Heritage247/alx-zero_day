@@ -1,1 +1,1 @@
-i love GOD
+i love GOD always
